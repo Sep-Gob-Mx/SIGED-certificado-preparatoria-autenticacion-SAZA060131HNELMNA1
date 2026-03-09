@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAZA060131HNELMNA1
+SAZA060131HNELMNA1
